@@ -9,7 +9,7 @@
 
 - ⚡ Fun fact **I love learning new things and gaining experiences.**
 
-<h3 align="left">Connect with me: erbiribrahimcan@gmail.com</h3>
+
 <p align="left">
 </p>
 
